@@ -12,7 +12,6 @@ Learning and Upskilling myself !
 
 ### Core
 #### Education 🏫
-Secondary School: SMK Seri Kembangan  
 Foundation Programme: University Teknologi Malaysia (UTMKL)  
 Degree Programme (now): University Teknologi Malaysia (UTMJB)
 
